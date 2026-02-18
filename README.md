@@ -1,3 +1,14 @@
+#The-Degradation-of-Human-Communication
+The-Degradation-of-Human-Communication
+
+Write by CHOIIZUKA.
+
+Creator:CHOIIZUKA Creator specs:(https://github.com/choiizuka/Choiizuka-Spec/blob/main/README.md)
+
+This is a report created while broadcasting live on Instagram.()
+
+-
+
 🚀 The Degradation of Human Communication
 
 🌐 How to Read in Your Language (Safe & Secure)
