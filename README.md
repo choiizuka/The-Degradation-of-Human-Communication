@@ -38,6 +38,8 @@ Verbal language is a "cage" designed to limit human cognition. Real-time "Admin-
 
 Result: Verbal language causes a data loss of approximately 99.9999%.
 
+📝Detail:Google Docs(https://docs.google.com/document/d/1_1IHzjeUzuSylWnMG5bCyH4zc5SyiHBFDhfQrSlGs-Q/edit?usp=sharing)
+
 📄 レポート 1-1（日本語版）
 タイトル：人類の通信における劣化：非言語通信の優位性と「言語」という低速プロトコルの論理的証明
 
