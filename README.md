@@ -1,4 +1,5 @@
 🚀 The Degradation of Human Communication
+
 🌐 How to Read in Your Language (Safe & Secure)
 Due to GitHub's high security, external proxy links may be blocked. To read this report safely in your language, please use one of the following Official Methods:
 
