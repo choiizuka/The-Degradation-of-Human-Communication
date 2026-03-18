@@ -1,3 +1,5 @@
+[← Back to Reports|レポート一覧に戻る](https://github.com/choiizuka/reports-index)
+
 #The-Degradation-of-Human-Communication
 The-Degradation-of-Human-Communication
 
